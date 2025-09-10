@@ -1,2 +1,0 @@
-# RBL-global
-Hack roblox
